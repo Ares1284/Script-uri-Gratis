@@ -1,4 +1,4 @@
 # Script-uri
 
-NU VINDETI SCRIPT-UL, ACESTA ESTE SI A FOST GRATIS!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
+NU VINDETI SCRIPT-UL, ACESTA ESTE, A FOST SI O SA FIE IN CONTINUARE GRATIS!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
 OFER SUPPORT DM ME ionut#0001
